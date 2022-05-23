@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @danipedersoli
+- 👀 I’m interested in: books, cook, 
+- 🌱 I’m currently learning: make an exchange
+- 💞️ I’m   dreams 
+- 📫 How to reach me:bridge to terabitia
+--->
